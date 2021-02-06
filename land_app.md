@@ -4,6 +4,7 @@
 - Chitrapuri – Tarun, Aditya
 - 1BHK - Malaysian township backside 
 - Sunway Opus - Survey No.162P &164, Ameenpur, Miyapur, Telangana 502032, India
+- Sri Venkateshwara, Residency,H.No:15-21-146/21/2/1, Flat No:301,Plot No:94,Survey Nos:1079,1080,Balaji Nagar,Kukatpally,Hyderabad500072,Rangareddy (Dist)
 
 ## Land
 - meenakshi county, shankarpally
@@ -12,5 +13,3 @@
 - Key stone international school – Jana Chaitanya layout. 
 - Land - Mantri Euphoria - Rajendranagar mandal, Manchirevula, Hyderabad, Telangana 500075, India
 - Snehita Hills, Peeramcheru
-
-- https://www.facebook.com/bangarugadda/posts/balaji-nagar-plot-owners-there-was-a-meeting-held-in-the-layout-on-16th-july-the/701496296701021/
