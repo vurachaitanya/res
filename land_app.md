@@ -13,3 +13,9 @@
 - Key stone international school – Jana Chaitanya layout. 
 - Land - Mantri Euphoria - Rajendranagar mandal, Manchirevula, Hyderabad, Telangana 500075, India
 - Snehita Hills, Peeramcheru
+
+## Check list doc :
+- [Check list for property documents](https://www.nitinbhatia.in/real-estate/property-document/)
+- [Check list 1](https://www.relakhs.com/checklist-important-property-documents/)
+- [Check list 2](https://www.ideasforindia.in/topics/macroeconomics/land-records-and-titles-in-india.html)
+- [VACANT LAND TAX](https://www.ghmc.gov.in/Property_Tax/Procedure_Vacant%20Land%20Tax.pdf)
