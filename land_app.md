@@ -20,3 +20,4 @@
 - [Check list 2](https://www.ideasforindia.in/topics/macroeconomics/land-records-and-titles-in-india.html)
 - [VACANT LAND TAX](https://www.ghmc.gov.in/Property_Tax/Procedure_Vacant%20Land%20Tax.pdf)
 - [Youtube to check list](https://www.youtube.com/watch?v=Vs4B7T01pVY)
+- [Property Purchase - Precautions](https://registration.telangana.gov.in/propertyPurchasePrecautions.htm)
