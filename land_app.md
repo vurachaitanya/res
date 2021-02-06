@@ -1,4 +1,5 @@
 - Sridhar – Shilpa ramam
+- meenakshi county, shankarpally
 - Chitrapuri – Tarun, Aditya
 - Alkapoor township – galen multi specialty clinics & Prism international school – Near Narsing 
 - Vasavi GP Atlantis---Near Mayure 
