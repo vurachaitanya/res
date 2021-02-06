@@ -13,4 +13,4 @@
 - Land - Mantri Euphoria - Rajendranagar mandal, Manchirevula, Hyderabad, Telangana 500075, India
 - Snehita Hills, Peeramcheru
 
-- https://www.google.com/maps/uv?pb=!1s0x3bcb8da589de8065%3A0x802b9438203c99b6!3m1!7e115!5sGoogle%20Search!15sCgIgAQ&hl=en&imagekey=!1e10!2sAF1QipNDMaViDB6kxLQglZk_9OBf4twD5IgNCKBFk1sZ
+- https://www.facebook.com/bangarugadda/posts/balaji-nagar-plot-owners-there-was-a-meeting-held-in-the-layout-on-16th-july-the/701496296701021/
