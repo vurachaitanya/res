@@ -2,6 +2,7 @@
 - Sridhar – Shilpa ramam - Manasa Sarovar
 - Gear Up Falguni - Jubilee Enclave
 - Chitrapuri – Tarun, Aditya
+- 1BHK - Malaysian township backside 
 
 ## Land
 - meenakshi county, shankarpally
